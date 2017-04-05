@@ -1,1 +1,6 @@
-# Hello-World
+# hello-world
+Hi everyone
+I am new here, and wish to learn more about coding....
+hopefuly i will be improving in all area.
+who know what the future has in-stock....
+any way my name is Solomon and it's nice to be here learning something!!!!!
